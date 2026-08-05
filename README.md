@@ -1,4 +1,4 @@
-# Hi there, I'm Asafa Qudus 👋
+
 
 ## Cybersecurity Enthusiast | Ethical Hacking Practitioner | Penetration Tester
 
